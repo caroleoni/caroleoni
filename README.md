@@ -7,4 +7,3 @@ I am an autonomous, dynamic, versatile and reliable person.
 
 
 
-
